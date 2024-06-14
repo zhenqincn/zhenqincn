@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **zhenqincn@gmail.com**
 
-- 📫 My homepage **[zhenqincn@gmail.com](https://zhenqinzq.cn/)**
+- 📫 My homepage **[zhenqinzq.cn](https://zhenqinzq.cn/)**
 
 <p align="left">
 </p>
